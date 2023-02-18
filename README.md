@@ -1,1 +1,0 @@
-# Pages-sobre-la-Ciudad-Mitad-del-Mundo
